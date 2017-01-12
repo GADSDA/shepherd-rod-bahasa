@@ -1,0 +1,108 @@
+.
+
+ -- {7SY 1}   
+  
+  **Surat Jezreel 7**
+-------------------
+
+Saudara-saudara yang kekasih :
+
+ Dengan ini dapatlah saudara mencatat bahwa kami sedang memikirkan saudara, bahwa kami benar-benar bermaksud untuk menyelesaikan apa yang Tuhan kini telah memulaikan dinegara ini. Saudara akan segera menemukan bahwa tanpa menghiraukan betapapun ketatnya musuh-musuh kebenaran mencoba mengurung saudara dalam kegelapan terhadap apa yang sedang terjadi, Tuhan tidak akan membiarkan mereka. Ia tidak akan membiarkan saudara bodoh terhadap Pehukuman Bagi Orang Hidup yang sedang mendekat, “Pembersihan sidang itu” – “Testimonies”, Vol.5, p. 80. Jika saudara mengijinkan-Nya maka Ia akan menerangi saudara bahkan lebih luas lagi mengenai masalah itu daripada yang telah dilakukan-Nya bagi umat-Nya mengenai Pehukuman Bagi Orang Mati. Kami mengatakan lebih lagi, sebab pekerjaan yang terakhir ini adalah jauh lebih penting dari pada yang pertama. Dalam kepentingannya tidak terdapat perbandingan diantara keduanya. Memang demikian halnya karena yang terakhir ini berkepentingan dengan para pembawa pekabaran itu sendiri, bukan dengan orang-orang yang sudah meninggal mendahului mereka. Karena kami berada dalam hubungan yang terus menerus dengan markas besar Tuhan, dapatlah kami memberikan kepada saudara informasi dari tangan pertama, bukan kabar angin, mengenai perkara-perkara pada mana diperlukan dari saudara kecerdasan yang jujur dan kuat. Oleh sebab itu, adalah merupakan kesempatan istimewa dan kehormatan untuk menjawab sepenuhnya penolakan-penolakan umum dari para pendeta melawan pekabaran tambahan ( “Early Writings “,p.277 ) yaitu pekabaran mengenai jam.
+
+ Saudara-saudara pendeta pertama sekali anggapan saudara bahwa buku-buku terbitan “Tongkat” mengajarkan sesuatu yang tidak mereka ajarkan adalah benar-benar jelas. Bahwa apakah saudara belum mempelajari sendiri dan telah bergantung pada apa yang telah diceritakan oleh orang lain kepadamu, atau sebaliknya saudara dengan sengaja sedang melalaikan permasalahan-permasalahan yang terkandung di dalamnya, adalah jelas terlihat. Lagi pula kritikan saudara berikut berbagai kritikan orang lainnya yang bersama-sama dengan saudara dalam apa yang sedang saudara lakukan menentang “Tongkat” Allah, mengingatkan saya kepada berbagai usaha pendeta E.S. Ballenger Canright, dan J.I. Easterly untuk mempersalahkan tulisan Ny.White, dan juga kepada para penganut hari minggu sewaktu mereka memerangi kebenaran Sabat.
+
+ -- {7SY 1}   
+  
+   Jika saudara mengharapkan suatu keberhasilan yang benar-benar langgeng, saudara sebagai pendeta lebih baik mulai menanggapi permasalahan –permasalahan yang terkandung gantinya membicarakan masalah-masalah umum yang menyerang tabiat orang. Saya yakin bahwa saudara percaya para nabi-nabi Alkitab bukan karena bagaimana pribadi-pribadi mereka, melainkan karena apa yang mereka tulis melalui Ilham. Mengapakah tidak berbuat demikian terhadap “Tongkat”? mengapaka saudara mencoba mengadilinya berdasarkan buah mulut orang dan kabar-kabar angin? Mengapa tidak memberitahu anggota supaya tidak mengikuti orang-orang yang terkenal baik dan besar? Tidak ada yang baik dan tidak ada yang benar-benar besar. Mengapa tidak mulai mengajarkan kepada umat Allah untuk mulai mengikuti kebenaran itu sendiri, sambil menekankan kenyataan, bahwa hanya itu yang mampu membebaskan mereka. Dengarkanlah apa yang Tuhan Firmankan mengenai manusia :
+
+ “Berhentilah bergantung pada manusia, yaitu mereka yang nafasnya terdapat didalam lubang hidungnya;karena dalam apakah ia dapat dipertanggungjawabkan?” Yesaya 2 : 22.
+
+ Saudara-saudara mulailah belajar bagi dirimu sendiri, maka jika saudara adalah benar-benar seorang pencari kebenaran, maka oleh Roh –Nya maka Allah akan mengaruniakan kepadamu pemahaman yang benar akan kebenaran-Nya bagi zaman ini. Ia tidak akan membiarkan saudara bodoh terhadap-Nya. Janji-Nya tidak pernah gagal dan musuh-Nya tidak pernah menang.
+
+ Sekalipun berbagai dalih dari saudara –saudara pendeta itu masih bersifat kekanan-kanakan dan tak pantas untuk diperhatikan, namun demi kepentingan orang-orang yang belum mampu berfikir sendiri, dan bagi mereka yang belum berkesempatan mengetahui kenyataan-kenyataannya, maka secara jujur dalam takut akan Allah dan sesuai kemampuan karunia Allah kepada saya, saya akan memberikan jawaban kepada saudara.
+
+ Berbagai tuduhan yang menyatakan bahwa saudara Houteff memiliki seorang “sekretaris samaran” di dalam E.W. Society secara mutlak adalah palsu. Ia ( perempuan ) itu adalah benar-benar seseorang. Tidak ada samaran apapun mengenai dirinya. Dan demikian pula berbagai tuduhan bahwa E.W Society berpura-pura telah memiliki markasnya dikota lain dan bukan Waco adalah palsu. Society itu tidak pernah berpura-pura. Secara resmi telah diumumkan olehnya bahwa
+
+ -- {7SY 2}   
+  
+  kotak pos surat, bukan markas dari Society, berada di kota lain. Saudara harus menyadari akan kenyataan bahwa, setiap orang termasuk saudara Houteff mempunyai hak untuk mengirim dan menerima surat dari setiap kantor pos pilihannya. Tidak ada apapun yang beritikad buruk, tidak ada penipuan apapun mengenai hal itu. Saudara tentunya harus mengetahuinya. Saudara–saudara pendeta, bukan perbuatan saudara Houteff, melainkan perbuatan-perbuatan rekan-rekanmu sendiri yang menghabiskan waktu mereka, secara diam-diam mengikuti jejaknya dari hari ke hari dalam usaha mencari alsan untuk menuduh secara palsu, ternyata itu beritikad buruk dan penuh tipu. Lagi pula, tidak ada pengusaha yang bijaksana akan mau membelanjakan uangnya berpuluh-puluh ribu dollar tanpa mempertimbangkan secara serius kantor pos mana yang memberikan hasil –hasil yang terbaik. Inilah yang dilakukan saudara houteff ; dan inilah yang akan dilakukan oleh setiap orang yang berperasaan; dan inilah yang mengganggu musuh-musuh kebenaran. Karena adalah mungkin bahwa satu kantor pos tidak dapat mengirim pada waktunya muatan-muatan surat yang dikirimnya, maka mengapa tidak saudara fikirkan dalam saluran itu? Tidak, masalahnya bukan apakah saudara Houteff tidak menipu dan saudara tentunya memahaminya.
+
+ Surat dari E.W. Society tertanggal 1 juli 1946 berbunyi sebagai berikut : “Kami tentunya belum dapat memahami mengapa saudara mengkaitkan nama kami secara fitnah dengan nama dari “Tongkat Gembala”, namun kami memahami bahwa saudara telah melangkah melampaui batas –batas saudara dalam menerbitkan pernyataan yang merusak sedemikian itu melawan kami dalam usaha untuk menghancurkan usaha kami, dan merintangi berbagai usaha kami menghantarkan kepada orang-orang perkara yang justru mereka butuhkan bagi kesehatan dan kebahagiaanya!”
+
+ Saudara, saudara pendeta, disini dapat saudara mencatat, bahwa surat itu bukan mencoba membantah hubungan Society dengan “Tongkat Gembala”, melainkan ia itu secara serius keberatan terhadap gereja menghubungkan Society **<span style="text-decoration: underline;">secara fitnah</span>** dengan “Tongkat Gembala”. Persoalan, “Bagaimana saudara membaca?” adalah sangat berkaitan disini. Sudah saat nya agar saudara berhenti melakukan pemutarbalikan dan interpretasi yang tidak benar.
+
+ Dan lagi, gereja telah mengancam hendak mendaftar – hitamkan nama anggota-anggota yang membaca setiap bacaan yang datang kepada mereka dengan bercap Pos Waco, adalah tidak kurang dari pengikut Romawi. Kalah di zaman Luther dan pasti akan kalah di zaman sekarang.
+
+ -- {7SY 3}   
+  
+   Berbagai upaya sauadara untuk menolak kebebasan paar anggota untuk menyelidiki sendiri bagi dirinya lalu mengambil keputusannya sendiri tentu saja merupakan perbuatan penyesatan yang kasar, karena oleh berbuat sedemikian itu saudara sedang menolak dari mereka pengetahuan tentang hari pembasmian jiwa yang tidak boleh dilalaikan – “hari Tuhan yang besar dan mengerikan itu “, yaitu hari pehukuman orang-orang Hidup. Saudara sebagai pendeta bertindak seolah-olah hanya saudara saja yang mampu melihat perbedaan diantara kebenaran dan kesalahan, seolah-olah kebijaksanaan mati bersamamu, seolah-olah para anggota-anggota itu hanya benda-benda otomatis; seolah-olah saudara lah Roh kebenaran itu, seolah-olah saudara lah yang akan menghantarkanmereka dibawah lenganmu langsung ke dalam kerajaan! Bukan ini yang diajarkan oleh Roh Allah, melainkan sebaliknya agar setiap orang dibujuk sesuai pikirannya sendiri ( Roma 14 : 5 ) Bukankah tugas saudara sendiri untuk memberitahu mereka,bahwa “sekalipun ketiga orang ini,Nuh,Daniel dan Ayub terdapat didalamnya,mereka hanya dapat melepaskan jiwanya sendiri oleh kebenaran mereka,demikianlah firman Tuhan Hua?.” Yeheskiel 14:14. Dan sekiranya benar bahwa para anggota adalah sedemikian bodohnya dan sedemikian hampa akan Roh,maka kebaikan yang bagaimanakah mereka itu?dan siapa lagi,kalau bukan saudara sendiri sebagai Pendeta-pendeta yang bertanggung jawab karena membiarkan mereka bodoh sedemikian itu lalu pada waktu yang sama,sambil berlawanan dengan perkataan Kristus saudara membuat mereka percaya,bahwa mereka sudah siap bagi kerajaan—bahwa mereka adalah kaya dalam kebenaran sehingga tidak memerlukan apa-apa lagi!
+
+ Karena Gereja tidak lagi membuat kemajuan apapun dalam kebenaran semenjak dari kematian pendirinya,utusan Sorga itu,maka jelaslah bahwa ia tidak lagi memiliki apa-apa untuk dibanggakan.,sehingga ia terus mundur dan juga mati rohani sama seperti halnya orang-orang Yahudi semenjak dari saat kematian nabi Maleakhi sampai kepada munculnya Yohanes Pembabtis di padang belantara Yudea. Garis komunikasi diantara Gereja dan Allah terputus sudah sama seperti halnya dizaman Yohanes. Ia tidak lagi dapat melayani anggota-anggotanya kini dengan “Makanan pada waktunya” sama seperti halnya orang-orang Yahudi dahulu tidak lagi dapat memberi makan para umatnya tanpa nabi-nabi. Kebutaanya akan kenyataan ini,dan sangkaannya bahwa ia ”tidak membutuhkan apa-apa lagi” membuat lukanya tak tersembuhkan. Saudara sebagai Pendeta pasti kini melihat dengan jelas bahwa jika saudara tidak menyambut sekarang panggilan Allah lalu menganjurkan kepada kawanan dombamu untuk juga berbuat yang sama,maka saudara kelak bukan hanya untuk selamanya jadi seperti gereja-gereja Protestan
+
+ -- {7SY 4}   
+  
+  yang hampa Roh itu karena penolakan mereka terhadap pekabaran-pekabaran dari Allah,melainkan saudara juga harus bertanggung jawab bagi jiwa-jiwa yang hilang dari kawanan dombamu maupun bagi jiwamu sendiri.”Tongkat”itu belum mulai memberitakan suatu pekabaran atas “tanggung jawab pribadinya sendiri”. Ia menunjukan Ilham abgi pemberitaannya maupun bagi pengungkapannya.
+
+ Untuk membuat pernyataan-pernyataan begitu saja,bahwa”Tongkat Gembala bertentangan dengan Alkitab dan tulisan-tulisan Ellen White,tanpa satupun ditunjang oleh fakta-fakta,adalah kepalsuan semata-mata.Kemudian juga perbuatanmu memutarbalikan Roh Nubuat dan kebiasaanmu mengabaikan kebenaran-kebenaran Alkitab yang terjelas untuk berbagai maksud memerangi “Tongkat”ialah tindakan yang sama jahatnya dengan perbuatan Sanhendrin menyalibkan Tuhan. Lagi pula,laranganmu terhadap anggota untuk datang berhubungan dengan “Tongkat Gembala” adalah jelas membuktikan bahwa “Tongkat”berbicara kebenaran dan bahwa tidak seorangpun dapat membuktikan kesalahannya,tetapi,saudara semua dengan tekun menjaga anggota bodoh terhadapnya. Jika “Tongkat”salah buktikanlah dari Alkitab,kemudian saudara akan tidak peduli siapa yang membacanya. Hanya itulah yang jujur,bijaksana,dan cara akhir untuk memperlakukannya. Keadaan Farisimu,sifat memfitnah,dan menyebar gosip tidak membuktikan “Tongkat” bahwa bukan kiriman Allah,tetapi saudara melawanya,tanpa menghiraukan.
+
+ Lagipula bertahun-tahun lamanya Gereja telah menyalahgunakan Alkitab serta membuat mabuk dan menyesatkan masyarakat umum dengan sikapnya yang tidak memerlukan apa-apa lagi dan dengan berbagai interpretasi sendiri Alkitabnya (yang tidak diilhami).Sebagai contoh,marilah kita membicarakan Wahyu pasal 9,ayat 16 dan 17 dibawah ini:
+
+ “Dan jumlah pasukan orang-orang berkuda itu adalah dua ratus juta, dan aku dengar jumlah mereka itu. Dan aku menyaksikan kuda-kuda itu dalam khayal,berikut mereka yang menungganginya,mereka memakai pelindung dada dari api dan dari warna merah padam dan dari belerang;dan kepala kuda-kuda itu adalah bagaikan kepala-kepala singa;dan dari dalam mulut mereka keluar api asap dan
+
+ -- {7SY 5}   
+  
+  belerang.” Inilah gambaran yang diberikan Yohanes mengenai 200.000,000 kuda itu berikut para penunggangnya.
+
+ Sekarang bandingkanlah gambaran Ilham mengenai kuda-kuda itu berikut para penunggangnya dengan ilustrasi kuda-kuda itu berikut para penunggangnya yang diberikan oleh gereja sebagaimana yang disajikan didalam buku “Thoughts on Daniel and the Revelation”,p.510. Mengapa dalam mengungkapkan trompet-trompet itu Gereja tidak dapat memanfaatkan ilustrasi Ilham mengenai kuda-kuda itu dan para penunggangnya? Mengapa mereka harus menciptakan ilustrasinya sendiri? Satu-satunya jawaban yang dapat diberikan ialah bahwa ilustrasi dari Ilham sendiri tidak cocok dengan interpretasi-interpretasi mereka yang tidak diilhami itu. Namun bagaimanapun juga ketidakmampuan seseorang untuk menginterpretasi dengan benar tanpa karunia interpretasi dari Surga akan ada dan dapat dimaafkan. Tetapi untuk mengatakan bahwa khayal itu diperlihatkan kepada Pewahyu pada jarak yang sedemikian jauh,sehingga ia tidak mampu melihat dengan tepat jenis-jenis dari kepala-kepala dan ekor-ekor yang dimiliki kuda-kuda itu serta darimana api,asap,dan belerang keluar,dengan maksud menyesuaikan khayal itu dengan interpretasi mereka,ia itu bukan saja melawan amaran Kristus yang melarang menambahkan sesuatu pada atau mengurangi sesuatu dari Alkitab(Wahyu 22:18,19)melainkan juga merupakan hujat yang terang-terangan.
+
+ Adakah saudara sekarang melihat apa yang sedang diperbuat oleh orang-orang yang olehmu disebut orang-orang besar,”tua-tua yang berpengalaman” itu? Perbuatan-perbuatan yang sembrono ini menuhduh kesombongan saudara bahwa orang-orang yang saleh(saintly)sedang memimpin Gereja.
+
+ Sekarang saya yakin saudara kini melihat alasan sebutan “hujat” itu terpampang melalui kesuluruhan tujuh kepala binatang yang menyerupai macan tutul (Wahyu 13)itu. Dan bahwa jika kepala yang satu melambangkan sebuah organisasi agama, maka sekaliannya harus melambangkan organisasi-organisasi agama karena sekaliannya itu adalah sama kecuali karena luka yang terdapat pada salah satunya,dan sekalianya berada pada binatang itu(dunia) pada waktu yang sam.
+
+ Sekiranya Yohanes tidak dapat melihat dengan tepat seperti apakah kuda-kuda itu, maka bagaimanakah mungkin dapat ia melihat bahwa semua ikan didalam laut mati(Wahyu 8:9)? Maka dengan suatu pendahuluan penyombongan diri yang sedemikian bagi penyelidikan Alkitab
+
+ -- {7SY 6}   
+  
+  seperti yang telah dibangun oleh para oendeta itu,bagaimanakah seseorang dapat yakin bahwa apa saja yang dilihat oleh para nabi adalah benar? Tidakkah saudara sebagai tua-tua menyadari bahwa interpretasi-interpretasi Alkitab yang bodoh dan kacau sedemikian itu adalah usaha-usaha setan untuk menghilangkan kepercayaan orang pada nabi-nabi dan pada kemampuan Kristus untuk mengungkapkan dan menggambarkan Kebenaran dengan benar kepada hamba-hamba-Nya? Bayangkanlah betapa merusak tuduhan terhadap Ilham,betapa merusaknya jiwa dan berapa besarnya hujat melawan Roholkudus yang memimpin kepada segala kebenaran! Dan betapa jijiknya hal itu bagi Kristus, terutama karena datang dari anggota-anggota yang berpura-pura datang melayani Dia! Ini saja seharusnya cukup untuk menunjukkan kepadamu bahwa malaikat ( pihak Kependetaan ) sidang Laodikea adalah buta dan bertelanjang dan kekurangan dalam segala perkara. Demi kepentingan hidupmu dan demi kehidupan orang-orang lain tinggalkanlah ajaran-ajaran jahat yang sedemikian itu.sekaliannya it sama sekali bukan kebenaran, sama sekali bukan tanda-tanda Roh Nubuat yang sedang bekerja. Tanyakanlah pada dirimu sendiri pernahkah Turki atau sesuatu bangsa lain memiliki 200.000.000 pasukan kuda! Dan sekirannya saudara masih juga heran mengapa Allah membiarkan kekeliruan-kekeliruan merayap memasuki sidang, maka jawabannya adalah : agar supaya melalui bantuanmu mengembangkan dan menyebarkannya, Ia pada saatnya yang tepat, pada sesuatu saat yang seperti ini dapat menelanjangi para pelaku kejahatan itu lalu membuktikan kepada para anggota, bahwa sidang-Nya kini sedang sangat dikuasai Iblis sama seperti halnya sidang Yahudi di zaman Kristus, dengan demikian membangunkan orang-orang yang jujur dan membebaskan mereka dari majikan –majikan mereka dan dari bencana yang melimpah ( Yesaya 28 : 13 – 15 )
+
+ Masih takut berhubungan dengan kesalahan! Saya harap saudara tidak lagi menipu diri sendiri bahwa “Tongkat Gembala” sedang merobohkan apa yang Allah telah perdirikan. Ia ada disini adalah untuk “memulihkan segala perkara” bukan untuk meruntuhkan. Bagaimanapun demi kepentinganmu bahwa “Tongkat” mengajarkan bahwa sidang adalah Babil, kami menentang saudara untuk membuktikan perkataan itu.
+
+ Memang sidang adalah sidang Allah, tetapi orang-orang yang menguasainya tidak lebih baik dari pada Sanhendrin di zaman Kristus. Adalah karena Allah
+
+ -- {7SY 7}   
+  
+  sangat menaruh perhatian akan Sidang-Nya terhadap sidang Yahudi di zaman Kristus, dan dengan demikian merebut kembali umat-Nya oleh menumpas orang-orang yang secara tidak sah sedang memperbudak mereka, mengajarkan kepada mereka doktrin-doktrin jahat seperti yang sudah diperlihatkan diatas,lalu menghalangi mereka berkomunikasi dengan Kebenaran dari Surga bagi zaman yang krisis ini. Adakah saudara melihat mengapa General Conference kini tidak lagi menjadi suara Allah bagi umat ( General Conference bulletine, 34<sup>th</sup>, session, Vol.4, Extra.no. 1, April 3<sup>rd</sup>, 1901, p.25, Cols 1, 2. ) sama seperti halnya Sanhendrin bagi orang-orang yahudi di zaman Kristus?
+
+Kami menghimbau engkau saudara –saudara agar jangan lagi mendengar kepada seruan damai dan kesentausaan palsu. melainkan, supaya mendengarkan apa yang dikatakan Kristus kepada orang-orang Laodikea. Percayalah Dia demi kepentingan Firman-Nya dan lepaskanlah diri demi hidupmu. Gosoklah matamu dengan salep mata yang ditawarkan Surga agar matamu dapat terus terbuka, dan dengan demikian saudara akan mendapatkan namamu tercatat didalam buku kehidupan-Nya daripada didalam buku-buku manusia yang kini sedang memanfaatkan catatan nama-nama didalam buku-buku itu hanya sebagai sarana pengumpulan uang untuk menunjang diri mereka sendiri, untuk memerangi kebenaran dan untuk, tetap membiarkan umat bodoh terhadap kebenaran itu, lalu pada waktu yang sama membuat kita percaya bahwa mereka adalah penguasa-penguasa sidang yang tertinggi milik Surga. Tidak, negri ini (Sidang) adalah bukan kuali mereka dan mereka itu bukan dagingnya. Yehezkiel 11 : 3, 11. Ilham selanjutnya mengatakan :
+
+“............... Orang-orang yang menaruh harap kepada kecerdasan, kemampuan pikir yang luar biasa, atau talenta, tidak akan berdiri pada waktu itu pada barisan terdepan. **Mereka tidak mengatur langkahnya seirama dengan terang itu.** Orang-orang yang telah membuktikan dirinya tidak setia tidak akan dipercayakan kepada mereka kawanan domba pada waktu itu. Padapekerjaan terakhir yang besar itu hanya sedikit orang-orang besar yang akan ikut serta. Mereka adalah orang-orang yang merasa kecukupan sendiri, tidak bergantung pada Allah, maka Ia tidak dapat menggunakan mereka. Tuhan memiliki **hamba-hamba** yang setia, **yang dalam masa keguncangan** dan cobaan akan **muncul keluar**........” – “ Testimonies”, Vol.5, p.80.
+
+ -- {7SY 8}   
+  
+  Apa! Berjalan seirama dengan terang sambil terus mengatakan bahwa saudara tidak memerlukan apa-apa lagi?
+
+ “Kelas orang-orang yang tidak merasa sedih atas kejatuhan Rohani mereka sendiri, atau menangis atas dosa orang-orang lain, **akan dibiarkan tanpa meterai Allah**. Tuhan menugaskan para utusan-Nya,yaitu orang-orang dengan senjata – senjata pembantai ditangannya :’ Pergilah kamu mengikuti dia melalui kota itu, dan bunuhlah; jangan matamu menaruh sayang, ataupun menaruh kasihan; bunuhlah semua baik tua maupun muda, baik anak-anak gadis maupun anak-anak kecil, dan perempuan-perempuan; tetapi janganlah kamu mendekati setiap orang yang padanya terdapat tanda itu; dan mulailah pada Kaabah kesucian-Ku. Kemudian mulailah mereka itu terhadap orang-orang bangsawan yang berada di depan rumah itu.’” – “Testimonies”, Vol.5, p.211. Disini saudara saksikan apa sebenarnya meterai Allah itu.
+
+ Bangkitlah melawan berbagai kekejian itu dan bergabunglah dengan pembangunan dan reformasi ini (“Testimonies”,Vol.9, p.126 ), yang diserukan oleh Saksi Yang Benar kepada orang-orang Laodikea ( “ Testimonies”, Vol.3, p.252, 253) bacalah “ Testimonies” Vol.3, p. 266,267 ; Yehezkiel 9, Biarkanlah Dia memunculkan saudara keluar.
+
+ Sekarang marilah secara jujur memikirkan gambar kartun pekabaran bagi zaman ini kepunyaan Surga dari para juru bicara-Nya, dari para pengasih utusan Surga mereka. Kemudian padanglah pada gambar kartun tiruanmu yang hina itu. Para tua-tua, saudara kini menyaksikan bahwa ini bukan sebuah permainan tandingan, melainkan adalah tuntutan Surga sendiri yang dihadapkan ke atas pangkuanmu kini agar saudara dapat mengambil keputusan kepada siapa saudara hendak berbakti. Jika Tuhan itu Allah, maka berbaktilah kepada-Nya, tetapi jika baal itu Allah, maka berbaktilah kepadanya.
+
+ -- {7SY 9}   
+  
+  Rekan dan saudaramu yang secara jujur senantiasa membela kebenaran dan yang benar, sekalipun mayoritas orang-orang meninggalkan kami, untuk menjadi pahlawan-pahlawan bagi Allah – “Orang-orang yang dikagumi“ Zakharia 3 : 8.
+
+Ttd
+
+V.H. Jezreel, H. B.
+
+(Direktur dari Pergerakan Anggota MAHK)
+
+5 T 80.
+
+ -- {7SY 10}   
+  
+  .
+
+ -- {7SY 11}   
+  
+  
